@@ -1,5 +1,5 @@
 # Hi 👋, I'm Nithin R Poojary
-**Student | Aspiring Web Developer from India**
+**Student | Aspiring AI engineer from India**
 
 Email Me 👉 ✉️ **nithinrpoojary3302@gmail.com**
 
